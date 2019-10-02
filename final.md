@@ -12,8 +12,8 @@ Please be civil here.
 * Soup
 * Chicken Tandoori
 * Panneer
-* Eggs
 * Biryani
+* Shawarma
 * Ice-cream
 <br>
 <b>We will end with this. Trust me.</b>
